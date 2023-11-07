@@ -1,4 +1,4 @@
-{\rtf1}
+
 #Sergey Melnechuk
 ===
 mail: lex07672@gmail.com
